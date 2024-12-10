@@ -1,9 +1,9 @@
  Free-Cash-App-Gift-Cards-Rewards...In-Get-Now..---
 
-**[Get Click Here For Link]((https://ccgeneratorr.com/uuyrCHoouu/))**
+**[Get Click Here For Link](https://ccgeneratorr.com/uuyrCHoouu/))**
 
 
-**[Get Click Here For Link]((https://ccgeneratorr.com/uuyrCHoouu/))**
+**[Get Click Here For Link](https://ccgeneratorr.com/uuyrCHoouu/))**
 
 
 Unlock Free Cash App Gift Cards: What You Need to Know
